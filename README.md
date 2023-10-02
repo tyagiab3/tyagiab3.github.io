@@ -12,3 +12,11 @@ This repo is a clone of https://github.com/varadbhogayata/varadbhogayata.github.
 ![image](https://github.com/tyagiab3/tyagiab3.github.io/assets/100087373/8180ce5e-1bd9-4a32-aace-d3f025550388)
 
 ![image](https://github.com/tyagiab3/tyagiab3.github.io/assets/100087373/044c9b47-b369-4301-8015-609477373be2)
+
+
+## Activity 3:
+
+![image](https://github.com/tyagiab3/tyagiab3.github.io/assets/100087373/7c6a7159-0cec-4f9c-99d6-84d2c6ecf3c7)
+
+![image](https://github.com/tyagiab3/tyagiab3.github.io/assets/100087373/febe4f91-3ef0-4094-9205-fbe548744e37)
+
